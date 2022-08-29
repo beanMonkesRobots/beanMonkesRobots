@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @beanMonkesRobots
+- 👀 I’m interested in making discord robots for people to make thier severs more fun and entertanig
+- 🌱 I’m currently learning how to keep my discord robots on
+- 📫 How to reach me on discord just freind me my name is bean_monke#5268
